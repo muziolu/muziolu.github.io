@@ -1,5 +1,4 @@
-Here you can say lots of fun things about your site.
+Bienvenidos a este humilde blog, donde escribo sobre cosas que me interesan sobre ciencia y pesca.
 
-Maybe say a some things about yourself.
+Espero te lleves algo nuevo que no sabías.
 
-Or maybe what you plan to blog about.
